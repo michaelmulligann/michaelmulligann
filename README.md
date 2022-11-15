@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @michaelmulligann
+- I'm 18 years old
+- 🌱 I live in Wexford
